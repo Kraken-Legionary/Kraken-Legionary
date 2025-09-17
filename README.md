@@ -1,1 +1,1 @@
-![Логотип](https://cdn.discordapp.com/attachments/1411475619442851966/1417671483064451195/5228e050af766b21.jpg?ex=68cb54f4&is=68ca0374&hm=b0aedcc5eed59afd94558bc47ebc56ee4bf82ab6c0b77ebb6ff90c4ecdf53539&)
+Потом добавлю
